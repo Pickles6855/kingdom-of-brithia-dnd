@@ -1,0 +1,3 @@
+The Spotless Shrub is a refined tavern known for its serene atmosphere and gourmet cuisine. Its pristine exterior and elegant interior offer a stark contrast to the boisterous charm of The Mighty Whale.
+
+The barkeep, Madame Isadora, is a graceful and dignified hostess with a keen eye for detail and a warm smile that puts patrons at ease. With impeccable service and a curated selection of fine wines and spirits, The Spotless Shrub is the perfect destination for those seeking a more upscale and intimate dining experience in the heart of the town.

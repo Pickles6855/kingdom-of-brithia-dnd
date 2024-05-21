@@ -1,0 +1,3 @@
+The Aladon Bay Ferry Co. is housed in a modest wooden building with a weathered exterior that bears the marks of salty sea air and years of maritime activity. A faded sign above the entrance proudly proclaims the company's name.
+
+Stepping through the door, visitors find themselves in a cozy and welcoming space that serves as both a shop and administrative office for the ferry company. The interior is adorned with maritime-themed decor, including model ships, vintage maps, and framed photographs of picturesque coastal landscapes. A wooden counter doubles as both a ticketing booth and a shop counter, where passengers can purchase tickets for their journey and browse a selection of maritime-themed souvenirs and trinkets.
